@@ -16,7 +16,7 @@
  vs. what was "program" by genes**  
 - Genes allows humans to **"have cultures"** because all difference groups of humans have culture (even though its different)
    - <code>Genes **enable**, but **not detersmine** ***culture-specific*** ways of acting, living and thinking</code>
-- Cultural allows humans to form **procreative** relationships
+- `ultural allows humans to form **procreative** relationships`
    - Most importantly, is the marriage patterns (how human reproduce)
 - Cultural helps human to recognizing hierarchy - how people understand & fight hierarchy
 - Cultural also deals with violence (some resistance within cultures creates violence)
