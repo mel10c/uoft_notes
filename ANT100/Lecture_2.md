@@ -15,7 +15,7 @@
 - <u>Cultural</u> -- What **we learn from each other 
  vs. what was "program" by genes**  
 - Genes allows humans to **"have cultures"** because all difference groups of humans have culture (even though its different)
-   - ==Genes **enable**, but **not detersmine** ***culture-specific*** ways of acting, living and thinking==
+   - <mark>Genes **enable**, but **not detersmine** ***culture-specific*** ways of acting, living and thinking</mark>
 - Cultural allows humans to form **procreative** relationships
    - Most importantly, is the marriage patterns (how human reproduce)
 - Cultural helps human to recognizing hierarchy - how people understand & fight hierarchy
