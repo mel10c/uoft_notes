@@ -6,6 +6,7 @@
 - Culture difference is not given biologically, it is given by **culture itself and history**
 - ==Difference is **dynamic** and changing, prejudice it has to do with difference and similarities==
 - <u>Prejudice</u> -- (偏见) people don't hate all people that are different.
+---
 
 ## Culture and Language
 
